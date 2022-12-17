@@ -1,1 +1,1 @@
-# zzyz
+# It's just for fun
